@@ -1,3 +1,2 @@
 # MemeX
-The real economy
-Hello!
+The real economy of the elongated muskovite. 
